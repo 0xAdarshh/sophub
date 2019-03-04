@@ -10,7 +10,7 @@ Adarsh Shinde
 
 Resume Link :- https://drive.google.com/open?id=1N86hzTHpRcwemDMVQScnEra-CDToGO4ayv0Z1f__q3E
 
-PS: Due to my exam studies I have created this website in hurry but I have given my 100%.
+PS: Due to my exam studies I have created this website in hurry but I have given my 100%. Website is also not very mobile friendly but I can improve it.
 
 Here are some screenshots.
 
